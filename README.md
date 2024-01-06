@@ -1,4 +1,4 @@
-### Olá!! Sou o Rodrigo Brito Alves 👋
+### Olá!! Sou o Rodrigo 👋
 
 <!-- comentario -->
 
